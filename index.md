@@ -3,7 +3,7 @@ Die Qualle <br>
 Die arme Qualle lag ganz allein<br>
 In dem abendlichen Sonnenschein, <br>
 Weil Ebbe war, <br>
-lag die Qualle ganz star 
+lag die Qualle ganz starr 
 im Sand herum. <br>
 <br>
 Da kamen vier Kinder, <br>
